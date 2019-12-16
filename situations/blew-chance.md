@@ -1,1 +1,1 @@
-# You were too nervous, you caused 7 turnovers and the coach, and your teammates cursed you out.
+# You blew your chance and the coach tells you this is your last day on the team, way to go buddy!!
